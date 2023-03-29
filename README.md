@@ -12,6 +12,6 @@
 
 ## Feito por:
 
-### Joana Santos
+### Victoria Giulia
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/in/victoria-giulia-ferreira-a8a4261b3/
